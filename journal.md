@@ -16,3 +16,13 @@ In my personal opinion i belive tik tok could deal with there privicy breach iss
 
 # February 3, 2025
 have multiple checkpoints for every call made, while yes advanced computers are "perfect" mistakes can happen and they are deadly it is necesary to double check 
+
+# February 11, 2025 
+
+| shape     | color  | count |
+| :------- | :-- | :------ |
+|      circle    |  green   |       7  |
+|  square        |  yellow   |    5     |
+| hexagon         |  brown   |     6    |
+|   triangle       |  purp   |      4   |
+ |  octagon       | red  |  3      |
