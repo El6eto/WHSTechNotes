@@ -26,3 +26,8 @@ have multiple checkpoints for every call made, while yes advanced computers are 
 | hexagon         |  brown   |     6    |
 |   triangle       |  purp   |      4   |
  |  octagon       | red  |  3      |
+
+# February 18, 2025
+
+The most intristing thing i learned last week was about the world war 2. I learned just how bad pearl harbor was and how many people where hurt. I learnd this in my history thru film class, and found this intristing because i did not know just how severly the damge done to pearl harbor was.  
+
