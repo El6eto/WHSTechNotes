@@ -31,3 +31,5 @@ have multiple checkpoints for every call made, while yes advanced computers are 
 
 The most intristing thing i learned last week was about the world war 2. I learned just how bad pearl harbor was and how many people where hurt. I learnd this in my history thru film class, and found this intristing because i did not know just how severly the damge done to pearl harbor was.  
 
+# February 24, 2025
+Technology has a major part to play in helping to bridging generational differences in communication, as well as in solving generational issues at work. Platforms that facilitate communication, collaboration, and efficiency help connect up employees from across the generation divide.the use of slang can undermine the perceived professionalism of the speaker or writer. It can lead to misunderstandings or miscommunications
