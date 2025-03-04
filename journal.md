@@ -34,6 +34,7 @@ The most intristing thing i learned last week was about the world war 2. I learn
 # February 24, 2025
 Technology has a major part to play in helping to bridging generational differences in communication, as well as in solving generational issues at work. Platforms that facilitate communication, collaboration, and efficiency help connect up employees from across the generation divide.the use of slang can undermine the perceived professionalism of the speaker or writer. It can lead to misunderstandings or miscommunications
 
+# March 4, 2025
 
 |   name   | power  | challnge |
 | :------- | :-- | :------ |
