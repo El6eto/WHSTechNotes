@@ -43,3 +43,20 @@ Technology has a major part to play in helping to bridging generational differen
 |      thorne    |   invinsibillity  |  underwater rescue       |
 |       silver   |    mind control     |  retrive stolen goods   |
  |    tengier    |  shapeshifting |   extract prisinoer     |
+
+
+
+
+
+
+
+# March 24, 2025
+i belive technology has made a great improvement to how we play sports, still it has many negatives nad has caused many anger among fans and contesenta for sports world wide. It is the cause of loss of worold champions and there injuries as withh better tech advsncments in shoes and courts older players that are not used too playing like that are loosing there magic. And the main issue uis the implimentation of ai. many will agree with me it is quite ovious ai predicting the outcomes of games causes lots of gambling adictions people loosing intrest and more.
+
+ Aditionally there is poes to the use of ai. pros like reaching a wider audience thru ai advertisments on social medias, and postivily impacting how we watch games with sientific informsation as we watch.
+
+
+
+
+
+ 
