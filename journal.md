@@ -55,7 +55,10 @@ i belive technology has made a great improvement to how we play sports, still it
  # March 31, 2025
  I feel great about this star test. My day is nevr stessful the only bad part is having to take the bus beacause i miss it sometimes to fix this i could go to sleep early. My goal for the school year is become a btter person than i am right now. To do hat i should stray from slacking of. When i do feel stressed i talk to my therapist i guess.
  
- 
+
+ # April 7, 2025
+
+  I believe that the most useful feature of an AI tutor for me would be its ability to create a customized study schedule that balances my coursework and test preparation. This feature would help me stay organized and ensure that I allocate sufficient time to each subject, reducing the stress that often accompanies exam preparation.
 
 
 
