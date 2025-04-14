@@ -60,8 +60,8 @@ i belive technology has made a great improvement to how we play sports, still it
 
   I believe that the most useful feature of an AI tutor for me would be its ability to create a customized study schedule that balances my coursework and test preparation. This feature would help me stay organized and ensure that I allocate sufficient time to each subject, reducing the stress that often accompanies exam preparation.
 
-
-
+# April 14, 2025
+he bans on student cell phone use and social media access in Florida schools can be seen as both beneficial and detrimental, depending on the perspective taken. On one hand, proponents argue that these measures can significantly reduce distractions in the classroom, allowing students to focus more on their studies and engage more meaningfully with their teachers and peers. By limiting access to social media, schools may also create a safer environment that mitigates the risks of cyberbullying and social anxiety, which can be exacerbated by constant online interactions. However, opponents raise valid concerns about the potential negative impact on student autonomy and the ability to communicate during emergencies. In a world where technology is integral to daily life.
 
 
  
