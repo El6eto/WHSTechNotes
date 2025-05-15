@@ -64,4 +64,19 @@ i belive technology has made a great improvement to how we play sports, still it
 he bans on student cell phone use and social media access in Florida schools can be seen as both beneficial and detrimental, depending on the perspective taken. On one hand, proponents argue that these measures can significantly reduce distractions in the classroom, allowing students to focus more on their studies and engage more meaningfully with their teachers and peers. By limiting access to social media, schools may also create a safer environment that mitigates the risks of cyberbullying and social anxiety, which can be exacerbated by constant online interactions. However, opponents raise valid concerns about the potential negative impact on student autonomy and the ability to communicate during emergencies. In a world where technology is integral to daily life.
 
 
- 
+
+
+
+
+
+
+
+
+
+
+
+
+ # May 12, 2025
+
+ The "Chromebook Challenge" is an unethical and dangerous trend that should not be taken lightly. Intentionally inserting objects like pencils into USB ports not only damages school property but also poses serious safety risks such as fires or electrical shorts. As digital citizens, we have a responsibility to use technology safely and respectfully. School equipment is provided to help us learn, and damaging it as part of a joke wastes school resources and can even put lives in danger. Just because something is trending online doesn’t make it harmless or acceptable.In class, we’ve learned that responsible technology use involves thinking about long-term consequences, not just short-term fun. For example, if someone damages a Chromebook, it could delay their learning and cost hundreds of dollars to replace. Saying “it’s just a joke” doesn’t undo the harm done or make it okay. Being ethical with technology means thinking critically and choosing actions that protect people and property. By using devices responsibly, we show respect for our community and prepare ourselves to be trustworthy tech users in the future.
+
